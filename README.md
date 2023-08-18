@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 - 🔭 I’m currently working on **my life**
-- 🌱 I’m currently learning **Java**
+- 🌱 I’m currently learning **Java & C#** 
 - 😄 Pronouns: he/him but sometimes she/her in front of some people xD
 - ⚡ Fun fact: I like someone called Pearcy ❤
 
