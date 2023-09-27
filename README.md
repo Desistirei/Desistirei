@@ -9,6 +9,6 @@
 
 - Discord (misureta)
 - Email (lugami@memeware.net, why would u send me an email lmao)
-- Minecraft (Lohanne, Misureta)
+- Minecraft (Lohanne, zyzzs)
 
 
