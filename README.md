@@ -7,8 +7,8 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=Desistirei&label=Profile%20views&color=0e75b6&style=flat" alt="Desistirei" /> </p>
 
-- Discord (misureta)
+- Discord (lxgami/potpvp.com)
 - Email (lugami@memeware.net, why would u send me an email lmao)
-- Minecraft (Lohanne, zyzzs)
+- Minecraft (KingLugami, ego1sticbr4t or theimpatientgame)
 
 
