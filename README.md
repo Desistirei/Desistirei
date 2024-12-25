@@ -25,5 +25,5 @@ Although I won't be on a computer frequently, I can try helping with something a
 - Discord: **matheuslugami**
 - Telegram: **matheuslugami**
 - Instagram: **matheuslugami**
-- E-mail: **lugami@memeware.net**
-Mostly online from **12:00 - 23:00.**</br>
+- E-mail: **lugami@memeware.net**</br>
+> Mostly online from **12:00 - 23:00.**</br>
